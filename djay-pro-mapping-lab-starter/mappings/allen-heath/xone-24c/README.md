@@ -1,1 +1,0 @@
-Xone 24C mappings

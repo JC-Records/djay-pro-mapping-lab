@@ -1,1 +1,0 @@
-Xone K2 mappings
